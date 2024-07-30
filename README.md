@@ -1,16 +1,16 @@
-## Hi there 👋
+## boa pa nois entra ai na parada 🎱
 
-<!--
-**ViniciusDaniel777/ViniciusDaniel777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome e vinicius 
 
-Here are some ideas to get you started:
+amo soltar pipa💋
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Voce entrar em contato comigo 📪
+
+00001115920674sp@al.educacao.sp.gov.br
+
+@vn.midia777
+
+
+
+
+![](https://media1.tenor.com/m/8aR2e6H7yQgAAAAd/asas.gif)
